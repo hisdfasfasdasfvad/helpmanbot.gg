@@ -1,0 +1,1 @@
+# helpmanbot.gg
